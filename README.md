@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Sammyalade](https://github.com/Sammyalade)
 
-- 📫 How to reach me **sammyalade$jesus@gmail.com**
+- 📫 How to reach me **sammyalade4jesus@gmail.com**
 
 - ⚡ Fun fact **I think I am funny**
 
